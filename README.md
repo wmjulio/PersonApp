@@ -4,5 +4,5 @@
 
 ### Dupla
 
-1. Julio Martins
+1. Julio Martins Filho
 2. Humberto Alencar Terceiro
